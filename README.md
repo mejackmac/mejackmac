@@ -1,4 +1,4 @@
-## Hi there 👋
+## coming soon :3
 
 <!--
 **mejackmac/mejackmac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
